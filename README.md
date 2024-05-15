@@ -1,4 +1,4 @@
-### Hi there 👋
+### Nice to meet you👋
 
 
 - 🇫🇷 I graduated in computer science from École Polytechnique.
